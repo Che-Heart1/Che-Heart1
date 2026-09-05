@@ -3,7 +3,7 @@
 🌱 Computer Engineering student at KNUST, Ghana<br>
 🔭 I’m currently working on back-end development<br>
 👯 I’m looking to collaborate on projects<br>
-💬 You can reach me on[Instagram]https://www.instagram.com/ch3_heart09?igsh=MWZmdzFzdm05aXNjbA==<br>
+💬 You can reach me on[LinkedIn]https://www.linkedin.com/in/iyinoluwa-nhyira-fashola-836188341<br>
 ⚡ Fun fact, I'm also interested in cyber-security<br>
 
 
